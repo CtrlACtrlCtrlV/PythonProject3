@@ -1,4 +1,4 @@
-<img width="1172" height="1037" alt="image" src="https://github.com/user-attachments/assets/62f3eb6c-5fc5-40f3-8968-03c25f76bfc0" />ИКБО-66-24 
+ИКБО-66-24 
 Цаплин Кирилл Дмитриевич
 Вариант 31
 
